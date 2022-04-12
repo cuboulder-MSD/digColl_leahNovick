@@ -1,6 +1,8 @@
 # Leah Novick Collection
 ## Description
 
+This collection contains media material from the papers of Rabbi Leah Novick, a notable spiritual leader whose pioneering research and teachings on the Shekhinah, the “Divine Feminine” has been instrumental to incorporating the feminine into contemporary Jewish liturgy and ceremonial rituals. As one of the oldest female rabbis in the country, and ordained by Reb Zalman Schachter-Shalomi, the founder of Jewish Renewal, she has been a driving force in the movement for over four decades speaking, writing, and leading meditation and guided visualization workshops. These moving image and audio recordings cover topics such as angels, Chanaukah, Easter-Passover, Rosh Hashanah, and the Divine Feminine among other topics.
+
 Permanent address to digital collection: [https://doi.org/10.25810/x45t-wp03](https://doi.org/10.25810/x45t-wp03).<br /> 
 Please use the same link when sharing or citing the collection.
 
